@@ -1,4 +1,4 @@
-# 
+# Elite deribit trading bot complementos para Mac OS | Automático deribit trading bot complementos para PC Windows. Com conectividade Web3 e suporte a margem isolada — otimizado para máximo desempenho em cada plataforma.
 
 
 
